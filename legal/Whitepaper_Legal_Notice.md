@@ -1,0 +1,3 @@
+Whitepaper Legal Notice
+This Legal Notice applies to the whitepaper and all associated communications by NEON EUROPE LTD.
+...

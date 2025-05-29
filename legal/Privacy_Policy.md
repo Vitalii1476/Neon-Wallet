@@ -1,0 +1,3 @@
+Privacy Policy
+NEON EUROPE LTD ("we", "our", or "us") respects your privacy. This Privacy Policy outlines how we collect, use, and protect your personal data.
+...

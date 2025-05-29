@@ -1,0 +1,3 @@
+KYC & AML Policy
+This Know Your Customer (KYC) and Anti-Money Laundering (AML) Policy ensures compliance with applicable global regulations.
+...

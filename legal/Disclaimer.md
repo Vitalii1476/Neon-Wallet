@@ -1,0 +1,3 @@
+Disclaimer Notice
+The information provided on the NEON Wallet platform does not constitute financial, legal, or investment advice.
+...
